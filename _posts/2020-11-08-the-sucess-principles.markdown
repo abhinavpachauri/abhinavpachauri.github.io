@@ -6,11 +6,15 @@ categories : success life-lessons
 
 If you take a step back and look at your life, you have been doing two things most of the time : _Making sense of the world_ and _doing something adding value_. But how does one make sense of the world and what kind of life skills one needs to acquire to do the same effectively. I have outlined the most important skills to make sense of the world around us and also the most important skill to be able to then execute on the understanding. Also, though the skills here would be suitable for any age group and any environment, any examples used in this are in context of a typical modern workplace. Given these skills, a modern worker can effectively be productive in his workplace.
 
-#### The meat! 
+### Gist
+
+Here is the summary of it all.
 
 * Be Curious - About everything around. Curiosity gives birth to innovation.
 * Be empathetic - Know people better. Get the social power in your hands
 * Be Gritty - and take the task to the finish line.
+
+### Gist + Feelings + story + examples
 
 #### Curiosity - Back to being a kid
 
