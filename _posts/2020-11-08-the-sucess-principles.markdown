@@ -28,7 +28,7 @@ While being curious is a good thing in general, there is one anti patten that I'
 
 #### Empathy - I trust you
 
-While curiosity can of course spark the interest to know the why about things around us, the world around us is made of people and we are social beings. We are talking about normal workplaces here where people needs people to work and get stuff done. While people are getting things done, people go through shit and people behave randomly while navigating their way through the shit. To ensure sanity of our mind and delivery of our work, we need to understand what the other people are going through.
+While curiosity can of course spark the interest to know the why about things around us, the world around us is made of people and we are social beings. We are talking about normal workplaces here where people needs people to work and get stuff done. While people are getting things done, people go through shit and people behave randomly while navigating their way through the shit. To ensure sanity of our mind and delivery of our work, we need to understand what the other people are going through. Here is a general framework for the same.
 
 ##### Step 1 : People are sincere
 
