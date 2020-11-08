@@ -14,9 +14,9 @@ If you take a step back and look at your life, you have been doing two things mo
 
 #### Curiosity - Back to being a kid
 
-Curiosity is a gift to human kind and this is oe single reason why homo-sapiens are human beings today (and not just another [phyla](https://en.wikipedia.org/wiki/Phylum)). Needless to say that curiosity has enabled us to look not just outside but also with in ourselves. 
+Curiosity is a gift to human kind and this is one single reason why homo-sapiens are human beings today (and not just another [phyla](https://en.wikipedia.org/wiki/Phylum)). Needless to say that curiosity has enabled us to look not just outside but also with in ourselves. 
 
-The problem is that with time, we become less and less curious and this lack of curiosity to understand and explore leads us to make unhappy. If there is one thing that can bring us back to being a child again, that is curiosity.
+The problem is that with time, we become less and less curious and this lack of curiosity to understand and explore leads us to become unhappy. If there is one thing that can bring us back to being a child again, that is curiosity.
 
 Curiosity is a single important factor to give birth to innovation. An incurious person will be the typical office worker who is getting minimum things done to keep his job. A workplace where people are not curious can never foster innovation. On a side note, I genuinely believe that curiosity is something that the companies need to measure to understand how innovative they are and could be. While writing this, I am trying to think if there can be a curiosity meter to serve as a leading indicator for the quality of innovation possible at a company. Lets park this curiosity meter for some other time. 
 
